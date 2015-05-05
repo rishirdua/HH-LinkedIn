@@ -10,6 +10,7 @@ LinkedIn Profiles of Hackathon Hackers Facebook group members
 - [Arnold Ewin](https://www.linkedin.com/in/arnoldewin)
 - [Aruna Srinivasiah](https://www.linkedin.com/pub/aruna-srinivasiah/60/2b0/b33)
 - [Arush Kakkar](https://www.linkedin.com/in/arushkakkar)
+- [Ashwin Kachhara](https://www.linkedin.com/in/ashwinkachhara)
 - [Bobby Zhang](https://www.linkedin.com/in/zexizhang1)
 - [Braun Shedd](https://www.linkedin.com/in/braunshedd)
 - [Brexton Pham](https://www.linkedin.com/in/brextonpham)
