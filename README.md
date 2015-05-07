@@ -4,6 +4,7 @@ LinkedIn Profiles of Hackathon Hackers Facebook group members
 - [Ahmed Medien](https://www.linkedIn.com/in/ahmedmedien)
 - [Alex Genuario](https://www.linkedin.com/in/genuario)
 - [Alexander Maru](https://ca.linkedin.com/pub/alexander-maru/80/664/11)
+- [Ali Afridi](https://www.linkedin.com/in/alikafridi)
 - [Andy Tran](https://www.linkedin.com/in/andyhqtran)
 - [Anwar Ali-Ahmad](https://www.linkedin.com/in/anwaraliahmad)
 - [Arjit Bhargava](https://www.linkedin.com/pub/arjit-bhargava/84/533/88b)
