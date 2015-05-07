@@ -24,6 +24,7 @@ LinkedIn Profiles of Hackathon Hackers Facebook group members
 - [David Tesler](https://www.linkedin.com/in/davidtesler)
 - [Devan Huapaya](https://www.linkedin.com/in/devanhuapaya)
 - [Elle Oltman](https://www.linkedin.com/pub/elle-oltman/a4/141/268)
+- [Faiz Ahmad](https://www.linkedin.com/in/faiz95)
 - [Giorgi Gognadze](https://www.linkedin.com/in/georgegognadze)
 - [Jackie Zhang](https://www.linkedin.com/in/jackiezhangcs)
 - [Justin Khoo](https://www.linkedin.com/in/justinkhoo002)
