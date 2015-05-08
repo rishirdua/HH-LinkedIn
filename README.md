@@ -28,6 +28,7 @@ LinkedIn Profiles of Hackathon Hackers Facebook group members
 - [Elle Oltman](https://www.linkedin.com/pub/elle-oltman/a4/141/268)
 - [Faiz Ahmad](https://www.linkedin.com/in/faiz95)
 - [Giorgi Gognadze](https://www.linkedin.com/in/georgegognadze)
+- [Ian Macalinao](https://www.linkedin.com/in/simplyianm)
 - [Jackie Zhang](https://www.linkedin.com/in/jackiezhangcs)
 - [Justin Khoo](https://www.linkedin.com/in/justinkhoo002)
 - [Kaivalya Gandhi](https://ca.linkedin.com/in/kaivalyagandhi)
