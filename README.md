@@ -31,6 +31,7 @@ LinkedIn Profiles of Hackathon Hackers Facebook group members
 - [Ian Macalinao](https://www.linkedin.com/in/simplyianm)
 - [Jackie Zhang](https://www.linkedin.com/in/jackiezhangcs)
 - [Justin Khoo](https://www.linkedin.com/in/justinkhoo002)
+- [Justine De Caires](https://www.linkedin.com/in/jdecaires)
 - [Kaivalya Gandhi](https://ca.linkedin.com/in/kaivalyagandhi)
 - [Kyle Kaplan](https://www.linkedin.com/in/kylekaplan1)
 - [Luka Marčec](https://www.linkedin.com/in/LukaMarr )
