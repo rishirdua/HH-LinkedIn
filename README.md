@@ -41,6 +41,7 @@ LinkedIn Profiles of Hackathon Hackers Facebook group members
 - [Nathan Pabrai](https://www.linkedin.com/in/nathanpabrai)
 - [Nazim Amin](https://www.linkedin.com/in/nazimamin)
 - [Nicolas Hinderling](https://www.linkedin.com/in/nicohinderling)
+- [Pradyuman Vig](https://www.linkedin.com/in/pradyumanvig)
 - [Raymond Gu](https://www.linkedin.com/in/raymondgu)
 - [Rishi Dua](https://www.linkedin.com/in/rishirdua)
 - [Samuel Decanio](https://www.linkedin.com/pub/samuel-decanio/a8/15a/b73)
