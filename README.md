@@ -15,6 +15,7 @@ LinkedIn Profiles of Hackathon Hackers Facebook group members
 - [Bobby Zhang](https://www.linkedin.com/in/zexizhang1)
 - [Braun Shedd](https://www.linkedin.com/in/braunshedd)
 - [Brexton Pham](https://www.linkedin.com/in/brextonpham)
+- [Brijesh Patel](https://www.linkedin.com/in/brijeshrpatel9)
 - [Carol Hai](https://www.linkedin.com/profile/view?id=415668232&)
 - [Chet Lemon](https://www.linkedin.com/in/chetjlemon)
 - [Christina Cook](https://www.linkedin.com/in/tinafcook)
