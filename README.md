@@ -34,6 +34,7 @@ LinkedIn Profiles of Hackathon Hackers Facebook group members
 - [Justin Khoo](https://www.linkedin.com/in/justinkhoo002)
 - [Justine De Caires](https://www.linkedin.com/in/jdecaires)
 - [Kaivalya Gandhi](https://ca.linkedin.com/in/kaivalyagandhi)
+- [Krish Munot](https://www.linkedin.com/in/krishmunot)
 - [Kyle Kaplan](https://www.linkedin.com/in/kylekaplan1)
 - [Luka Marčec](https://www.linkedin.com/in/LukaMarr )
 - [Mahir Kothary](https://www.linkedin.com/in/mahirkothary)
