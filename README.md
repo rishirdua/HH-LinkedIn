@@ -19,6 +19,7 @@ LinkedIn Profiles of Hackathon Hackers Facebook group members
 - [Carol Hai](https://www.linkedin.com/profile/view?id=415668232&)
 - [Chet Lemon](https://www.linkedin.com/in/chetjlemon)
 - [Christina Cook](https://www.linkedin.com/in/tinafcook)
+- [Christopher Ngo](https://www.linkedin.com/in/ingochris)
 - [Christopher Smith](https://www.linkedin.com/in/cvsmith)
 - [Cristian Lopez](https://www.linkedin.com/in/crislo)
 - [Daghan Percinel](https://www.linkedin.com/in/guptakedar)
